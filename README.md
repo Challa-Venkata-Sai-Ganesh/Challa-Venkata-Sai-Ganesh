@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning Data Analytics
+🌱 I’m a Aspiring Data Analyst.
 
 
 ## 🌐 Socials:

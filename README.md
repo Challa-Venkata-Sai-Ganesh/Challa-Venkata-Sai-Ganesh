@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m a Aspiring Data Analyst.
+🌱 Data Analyst with 2.10 years of experience in data visualisation, modelling, and analysis, seeking a challenging role to leverage expertise in Power BI and Excel for impactful business insights.
 
 
 ## 🌐 Socials:
